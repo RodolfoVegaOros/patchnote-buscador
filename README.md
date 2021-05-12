@@ -1,0 +1,1 @@
+#Buscador sw Patchnotes
